@@ -1,0 +1,5 @@
+![image](https://github.com/Jiyarathore/BinaryTree/assets/96529109/ea37c3ac-8e6a-4ab9-b083-d632bc2e5a68)
+![image](https://github.com/Jiyarathore/BinaryTree/assets/96529109/ae5794a4-4287-4c80-94be-2488877215ad)
+![image](https://github.com/Jiyarathore/BinaryTree/assets/96529109/0da0d2ee-c2eb-4e0b-b18f-3374be6a5ee3)
+![image](https://github.com/Jiyarathore/BinaryTree/assets/96529109/b57ef892-410c-44c1-a572-7da8ad825ca9)
+![image](https://github.com/Jiyarathore/BinaryTree/assets/96529109/beb38db4-e126-4c54-8c1c-70373c10f298)
